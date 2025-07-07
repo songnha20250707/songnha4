@@ -19,4 +19,4 @@
 我们提供在线播放和磁力下载链接，方便快捷地获取高清影片。每个视频页面都进行了SEO优化，使用**“日本AV免费”、“无码AV”等关键词确保高排名。同时，内含标签和相关推荐视频**，帮助您轻松找到更多精彩内容。
 
 为了提升用户体验，我们采用了CDN加速和懒加载技术，保证页面快速加载，观看流畅。每日更新资源，确保您始终能够观看到最新日本AV影片。
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/songnha20250707/songnha4 ）</span>
